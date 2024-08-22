@@ -1,4 +1,4 @@
-### vindas ao meu perfil. 👋
+### bem vindas ao meu perfil. 👋
 
 ### aqui esta algumas coisas sobre mim;
 - hanyzao.
